@@ -1,4 +1,4 @@
-### Boas Vindas ao meu Perfil 🙋‍♀️
+### Bem Vindo ao meu Perfil 🙋‍♀️
 
 Meu nome é Tatiana Mendes
 
